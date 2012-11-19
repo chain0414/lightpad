@@ -1,0 +1,1 @@
+the copyright is belong to the lightpad team!
